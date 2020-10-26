@@ -1,1 +1,1 @@
-https://krejcii.github.io/fodraszat/index.html
+https://krejcii.github.io/fodraszat/
